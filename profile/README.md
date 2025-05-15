@@ -2,6 +2,8 @@
 
 **Tag Unblocked** is a **hyper-fast, adrenaline-pumping** multiplayer game that transforms the classic playground chase into an **epic online experience**. Whether you're the **hunter or the runner**, this game will test your reflexes, speed, and strategy in an **intense combat of tag-and-escape**.
 
+## <a href="https://1kb.link/pP8iUv">👉 Play Tag Unblocked Games NOW 👈</a>
+
 ### 🎮 Game Overview
 
 * **Genre:** Arcade, Runner, Multiplayer
